@@ -1,0 +1,2 @@
+# unban-request
+Hello Team Battleground mobile India, Krafton Inc.  Recently my Account was ban without any reason and I am Quite sure I have followed your fair gameplay policies and rules of conduct mentioned on your Official site . I have been a consistent Battleground mobile India Player And this account means a lot to me so kindly again review my banned account of possible that's my request  My IGN : NINJA丨OFICIAL  My I'd : 5697001241  Thank you Rohit kumar
